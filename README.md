@@ -1,5 +1,4 @@
-im shkaf16 i like cats and owls
-im totally noob
+myaaaa
 
 <!---
 shkaf16/shkaf16 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
